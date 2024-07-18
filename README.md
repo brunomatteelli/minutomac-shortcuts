@@ -1,0 +1,1 @@
+# minutomac-shortcuts
